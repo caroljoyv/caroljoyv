@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Optimizing LLMs<br><br>🌱 I’m currently learning LLM Optimization, Go<br><br>📫 How to reach me caroljoyv27@gmail.com<br><br>⚡ Fun fact: **Not a Swiftie, but know most of her songs "all too well"** !!
+🔭 I’m currently working on Optimizing LLMs<br><br>🌱 I’m currently learning LLM Optimization, Go<br><br>📫 How to reach me caroljoyv27@gmail.com<br><br>⚡ Fun fact: **Not a Swiftie, but know most of her songs "all too well"** (get it?, ALL TOO WELL😉) !!
 
 
 ## 🌐 Socials:
